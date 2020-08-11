@@ -1,2 +1,2 @@
 # Microeconomics
-大二個體經濟學
+大二必修個體經濟學
