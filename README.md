@@ -3,7 +3,7 @@
 
 
 
-[課程網址](https://github.com/HungHuaTien/Microeconomics/edit/master/README.md)
+[課程網址](https://github.com/HungHuaTien/Microeconomics/)
 
 [修正版講義下載](https://is.gd/seB2Ik)
 
