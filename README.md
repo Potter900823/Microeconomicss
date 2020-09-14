@@ -5,7 +5,7 @@
 
 [課程網址](https://github.com/HungHuaTien/Microeconomics/)
 
-[講義下載](https://is.gd/seB2Ik)
+[更新講義下載](https://is.gd/seB2Ik)
 
 
 注意事項公告：
