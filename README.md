@@ -3,7 +3,7 @@
 
 Email/FB: BigflowerFrancis@gmail.com
 
-[課程網址](https://github.com/HungHuaTien/Microeconomics/)
+[課程FB社團](https://www.facebook.com/groups/312193870007113/)
 
 [更新講義下載](https://is.gd/seB2Ik)
 
